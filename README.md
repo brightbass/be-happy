@@ -23,4 +23,4 @@ finished.
 
 Extra Chapter.
 
-Chose to be happy now because you can't chose to be happy yesterday.
+Chose to be happy now because you can't chose to be happy yesterday. :)
